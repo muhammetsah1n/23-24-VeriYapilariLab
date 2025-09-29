@@ -1,1 +1,1 @@
--Hangi sorulardan tam puan aldığımı hatırlayamadığımdan yalnızca emin olduklarımı paylaşmak istedim.
+- Hangi sorulardan tam puan aldığımı hatırlayamadığımdan yalnızca emin olduklarımı paylaşmak istedim.
